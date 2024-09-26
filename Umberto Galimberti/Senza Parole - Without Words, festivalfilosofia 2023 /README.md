@@ -1,6 +1,6 @@
 # Umberto Galimberti | Senza parole | festivalfilosofia 2023
 
-### Watch the full lecture here: https://www.youtube.com/watch?v=tqkmJUokWE0
+### From: https://www.youtube.com/watch?v=tqkmJUokWE0
 
 festivalfilosofia 2023 | parola
 Lezioni magistrali
